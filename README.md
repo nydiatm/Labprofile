@@ -13,7 +13,7 @@ I am seeking to transition into industry as a Field Application Scientist, where
 
 ### Employments
 - Assistant Professor in the Oncology Department at Oklahoma University Health Sciences Center since June 2023 to present time.
-- Postdoctoral position, University of California in Los Angeles, Octover 2016 - June 2023.
+- Postdoctoral Fellowship, University of California in Los Angeles, October 2016 - June 2023.
 
 ### Top Skills
 - Molecular biology, Biochemistry
