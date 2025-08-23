@@ -30,7 +30,7 @@ nydia.tejeda@gmail.com
 - Autonomous University of Puebla, Mexico (BUAP), B.S. Biomedicine, 2008.
 
 ### List of Publications
-I have about 30 publications related to my research in cancer.  For complete list, see my Google Scholar page here: 
+I have about 30 publications related to my research in cancer.  For complete lists, please see my Google Scholar page here: 
 [My Google Scholar page](https://scholar.google.com/citations?user=4i_0gqoAAAAJ&hl=en)
 
 ### Honors & Awards
